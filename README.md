@@ -1,5 +1,7 @@
 # Check Ahead
 
+[*Promo video*](https://www.youtube.com/watch?v=LTRy6eUjFFU) <br/>>
+
 **Tim: Lucija Babić i Lucia Vareško <br />**
 
 [Fakultet informatike u Puli](https://fipu.unipu.hr/) <br />
