@@ -1,6 +1,6 @@
 # Check Ahead
 
-[*Promo video*](https://www.youtube.com/watch?v=LTRy6eUjFFU) <br/>>
+[*Promo video*](https://www.youtube.com/watch?v=LTRy6eUjFFU) <br/>
 
 **Tim: Lucija Babić i Lucia Vareško <br />**
 
